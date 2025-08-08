@@ -1,0 +1,1 @@
+# linardi_Ia_na_escola
